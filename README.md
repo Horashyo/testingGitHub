@@ -1,2 +1,2 @@
 # testingGitHub
-they recommended that I tell sa littke bit aboiut myself well i have no time
+They recommended that I tell a little bit about myself. well i have no time.
